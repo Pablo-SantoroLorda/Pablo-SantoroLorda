@@ -33,6 +33,6 @@ Me apasiona transformar datos en información útil para la toma de decisiones, 
 ## 📫 Contacto
 - 📧 **Email:** psantorolorda@gmail.com  
 - 📱 **Celular:** +54 9 266 483 5652  
-- 🔗 **LinkedIn:** [Pablo Santoro Lorda]([https://www.linkedin.com/in/pablo-santoro-lorda](https://www.linkedin.com/in/pablo-santoro-lorda-a6969939a/))  
+- 🔗 **LinkedIn:** [Pablo Santoro Lorda](https://www.linkedin.com/in/pablo-santoro-lorda](https://www.linkedin.com/in/pablo-santoro-lorda-a6969939a/)  
 
 ---
